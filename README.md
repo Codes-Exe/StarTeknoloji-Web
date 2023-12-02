@@ -1,3 +1,5 @@
+![image](https://github.com/Codes-Exe/StarComputer/assets/93947784/6bdfa70b-4445-45fe-a93c-4e34f4d25747)
+
 - ***Hoşgeldin***
 - ***|`Özellikler`|***
 # ***@starteknoloji.space*** 
